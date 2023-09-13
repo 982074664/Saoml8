@@ -1,6 +1,6 @@
 # Saoml8
 2023可用版
-#需要请直接私信
+#需要请直接去https://afdian.net/a/saoml
 SaoML官网授权30r/份
 本人出售10r/份（同样不限授权IP）
 WEB截图
